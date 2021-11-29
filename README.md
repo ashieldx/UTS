@@ -1,5 +1,5 @@
-# UTS
-ADA mid exam answer 2021
+# A.D.A MID Examination Answer
 
 DANIEL WIDJAJA 2440092151
+
 BINA NUSANTARA UNIVERSITY
